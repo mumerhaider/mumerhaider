@@ -37,7 +37,7 @@
   ---
   
   ### 📫 Contact
-  - **Email:** [mumerhaider9@gmail.com](mailto:mumerhaider9@gmail.com)  
+  - **Email:** [umer.haider0002@gmail.com](mailto:umer.haider0002@gmail.com)  
   - **Resume:** [View My Resume](https://docs.google.com/document/d/1R3llwJrbYj8XOx2OWsJdML-BWXS5lcVhfGWubZsRVVA/edit?tab=t.0)  
   
   ---
